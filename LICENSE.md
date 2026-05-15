@@ -1,4 +1,4 @@
-# 
+# Get the ultimate bitmex trading bot with elite bitmex trading bot Addon | grid-trading + position-sizing. Featuring grid-trading and position-sizing, it's the best choice for
 
 
 
